@@ -1,2 +1,2 @@
 # deneme 1
-rhjghj
+r
