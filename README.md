@@ -1,13 +1,2 @@
 # deneme 1
-jh
-kklk
-jkjhkhj
-yuytu
-yuytuyutyuyuyuyfgdfgfdgfdgfgdfgrtytry
-yuytuyufgdfgdfgfdg
-yyuyuyutyufgdfg
-yutyudfgdfgtytrytrytyrtytrytrytry
-yutyuyutyutyutyuyu
-fgdfg
-yutyutyuu
-ytutyutyuyu
+jghjhgj
