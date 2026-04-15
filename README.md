@@ -1,5 +1,5 @@
 # deneme 1
 jghjhgj
-ghjghjghjghjg
+ghjghjghjghjgghjghj
 ghjghjghj
 ghjghjhgj
