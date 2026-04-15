@@ -1,7 +1,7 @@
 # deneme 1
 jghjhgj
 ghjghjghjghjgghjghj
-ghjghjghj
+ghjghjghjdfg
 ghjghjhgj
 ghjghjhgdfgdfg
 rtetret
